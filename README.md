@@ -3,7 +3,7 @@
 <img align="left" width="197" height="188" alt="image" src="https://github.com/user-attachments/assets/04929d21-3be5-4f2f-b235-734c7c100cd5" hspace="1" />
 <h3>[ INITIATING DETAILS . . . ]</h3>
 <p align="left">
-<code>GLI<del>TCH</del></code> / RISK ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
+<code>GLI<del>TCH</del></code> / VAL ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
   NON-BINARY—<code>AROMANTIC</code> TRANSMASC ⬦ <b>17</b> Y/O<br>
 <code>LOCATION</code> : <b>DOCKS</b> MOSTLY ⌒⌒ <i> LOCAL LURKER</i></br>
 ⯏ ◇    <ins>IWCAUTION</ins> <b><i>ALWAYS</i></b> .  ﹕DO <b>NOT</b> COVER ⊹ READ <b>RENTRY</b> FOR MORE INFO <i>!</i>﹒ ✦ <br>
